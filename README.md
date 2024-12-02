@@ -5,4 +5,3 @@
 - 🤔 I’m looking for help with programming
 - 💬 Ask me about brunch/games
 - 📫 How to reach me: Mainly discord
-- 😄 Pronouns: It
